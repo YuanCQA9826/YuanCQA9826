@@ -1,6 +1,7 @@
 ### 🌸 Dear everyone! 🌸
 <br>Hi everyone! I'm YuanCQA~ you can call me "Tangyuan" in daily life!
-<br>**Here are some my habits~**
+<br>
+<br>**· Here are some my habits~**
 <!--
 **YuanCQA9826/YuanCQA9826** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
