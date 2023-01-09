@@ -21,6 +21,10 @@
 <br>Channel : https://github.com/YuanCQA9826/Yuan-Line-Download
 <br>
 <br>💐🌸🏵🌹🌺🌻🌼🌷🍁
+<br>
+<br>QQ : 3451412429
+<br>Bilibili : https://space.bilibili.com/295617764
+<br>
 <br>Wishing you happiness everyday www~~~
 <br>
 ![image](https://github.com/YuanCQA9826/YuanCQA9826/blob/main/Yuan_CQA.png "My personal setting w")
