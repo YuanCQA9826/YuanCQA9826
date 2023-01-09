@@ -2,6 +2,12 @@
 <br>Hi everyone! I'm YuanCQA~ you can call me "Tangyuan" in daily life!
 <br>
 <br>**· Here are some my habits~**
+<br>🎹I am good at electronic piano and piano. They are both level 10 at present!🎹
+<br>🎤And Broadcasting and hosting skills are level 6!🎤
+<br>🎈Like computer, logic, music composition, etc.🎈
+<br>
+<br>**· Some account information for music games**
+<br>Sometimes I play some music games so if we have the same interests, you can visit me!
 <!--
 **YuanCQA9826/YuanCQA9826** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
