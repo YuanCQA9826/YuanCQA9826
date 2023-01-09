@@ -8,6 +8,9 @@
 <br>
 <br>**· Some account information for music games**
 <br>Sometimes I play some music games so if we have the same interests, you can visit me!
+<br>My Arcaea ID : 004412300
+<br>My osu! ID : Tang_yuan_233
+<br>Sometimes I play BanG!Dream, Phigros, Cytus, Pianist and Lanota~
 <!--
 **YuanCQA9826/YuanCQA9826** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
