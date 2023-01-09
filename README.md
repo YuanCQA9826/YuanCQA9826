@@ -1,9 +1,9 @@
 ### 🌸 Dear everyone! 🌸
 <br>Hi everyone! I'm YuanCQA~ you can call me "Tangyuan" in daily life!
 <br>
-<br>**· Here are some my habits~**
-<br>
 <br>💐🌸🏵🌹🌺🌻🌼🌷🍁
+<br>
+<br>**· Here are some my habits~**
 <br>
 <br>🎹I am good at electronic piano and piano. They are both level 10 at present!🎹
 <br>🎤And Broadcasting and hosting skills are level 6!🎤
