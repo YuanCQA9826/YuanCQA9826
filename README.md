@@ -1,7 +1,7 @@
 # 🌸 Dear everyone! 🌸
 <br>Hi everyone! I'm YuanCQA~ you can call me "Tangyuan" in daily life!
 <br>
-<br>![GitHub Data](https://github-readme-stats.vercel.app/api?username=YuanCQA9826)
+<br>![Anurag's GitHub Data](https://github-readme-stats.vercel.app/api?username=YuanCQA9826)
 <br>
 <br>💐🌸🏵🌹🌺🌻🌼🌷🍁
 <br>
