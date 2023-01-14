@@ -1,7 +1,7 @@
 # 🌸 Dear everyone! 🌸
 <br>Hi everyone! I'm YuanCQA~ you can call me "Tangyuan" in daily life!
 <br>
-<br>![GitHub Data](https://github-readme-stats.vercel.app/api?username=YuanCQA)
+<br>![GitHub Data](https://github-readme-stats.vercel.app/api?username=YuanCQA9826)
 <br>
 <br>💐🌸🏵🌹🌺🌻🌼🌷🍁
 <br>
@@ -32,17 +32,3 @@
 <br>Wishing you happiness everyday www~~~
 <br>
 ![image](https://chinadlrs.com/space/upload/20230110073626.png "My personal setting w")
-<!--
-**YuanCQA9826/YuanCQA9826** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
